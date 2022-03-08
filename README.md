@@ -11,4 +11,4 @@ He
 
 3. Favourite animal
 
-\(O^O)/ hi
+\ /(O^O)/ hi
